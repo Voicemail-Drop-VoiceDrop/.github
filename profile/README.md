@@ -11,25 +11,25 @@ We brought you verified [VoiceDrop coupons](https://www.voicedrop.ai/) for sales
 
 [**Claim 15% off your first month**](https://www.voicedrop.ai/) using the code **VDRVMAI15** and streamline your lead handling through seamless Zapier, Make, and HubSpot integrations, allowing you to move beyond manual cold calling without jumping into expensive enterprise pricing.
 
-[![Claim This Discount](image3.png)](https://www.voicedrop.ai/)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/ringlessimage.png)
 
 ## Start Sending Voicemail Drops for $95/Month
 
 [**Get started for just $95/month**](https://www.voicedrop.ai/) on the Budget plan to manage automated sales calls and notifications. This tier includes 500 voice units, full API access, and the ability to rotate multiple phone numbers in your campaigns.
 
-[![Claim This Discount](image3.png)](https://www.voicedrop.ai/)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/ringlessimage.png)
 
 ## Get a Free Trial & $20 in Credits on VoiceDrop [No Credit Card Required]
 
 [**Get a free trial and $20 worth of credits**](https://www.voicedrop.ai/) to test VoiceDrop's voicemail drop delivery hands-on. This is ideal for first-time users who want to explore the platform's AI voice cloning and delivery rates before choosing a paid plan.
 
-[![Claim This Discount](image3.png)](https://www.voicedrop.ai/)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/ringlessimage.png)
 
 ## VoiceDrop 15% Off Promo Code [New Users]
 
 [**Save 15% on any VoiceDrop plan**](https://www.voicedrop.ai/) as a new user with code **VDRVMAI15** and drastically reduce your initial campaign costs. This makes it easier to test different voice scripts and contact lists without paying the full price in your first month.
 
-[![Claim This Discount](image3.png)](https://www.voicedrop.ai/)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/ringlessimage.png)
 
 ## How to Apply the VoiceDrop Coupon Code?
 
@@ -37,15 +37,15 @@ Follow these 4 simple steps to claim a VoiceDrop promo code.
 
 **Step 1:** Visit the **VoiceDrop official website** with this [**discount link**](https://www.voicedrop.ai/).
 
-![VoiceDrop official website](image8.png)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/voicedrop1.png)
 
 **Step 2:** Click on the **pricing tab** from the top bar, and **select a plan** that suits your outreach volume (Budget, Individual, Growth, or Scale).
 
-![Select a plan](image7.png)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/voicedrop2.png)
 
 **Step 3:** Now, **sign up on VoiceDrop** by entering your email ID.
 
-![Sign up](image9.png)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/voicedrop3.png)
 
 **Tip:** You are free to use the platform's trial to get $20 in free credits.
 
@@ -66,7 +66,7 @@ If you are facing any trouble while applying the VoiceDrop coupon, follow these 
 
 VoiceDrop offers 4 main tiers to cater to everyone's needs, starting from small setups to massive enterprise campaigns.
 
-![VoiceDrop pricing](image10.png)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/voicedrop4.png)
 
 | Plan | Monthly Billing | Annual Billing (20% Off) | Included Voice Units |
 | --- | --- | --- | --- |
@@ -138,7 +138,7 @@ If you're tired of the repetitive grind of cold calling and want an automated, n
 
 If you want a scalable, AI-powered tool that actually helps you generate callbacks faster, VoiceDrop is a smart pick. And with these verified VoiceDrop coupons, you can easily save 20% annually, grab 15% off your first month with the code **VDRVMAI15**, or start with $20 in free credits before paying anything.
 
-[![Claim This Discount](image3.png)](https://www.voicedrop.ai/)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/ringlessimage.png)
 
 Choose the plan that matches your contact volume, apply the best VoiceDrop promo code at checkout, and start managing your voicemail drop automation at a much lower cost.
 
