@@ -5,7 +5,7 @@ We brought you verified [VoiceDrop coupons](https://www.voicedrop.ai/) for sales
 
 [**Get 20% off on annual subscriptions**](https://www.voicedrop.ai/) using this VoiceDrop coupon and manage your voicemail drop campaigns more efficiently with lifelike AI voice cloning, mass messaging, and seamless CRM integrations built for scaling sales teams.
 
-[![Claim This Discount](image3.png)](https://www.voicedrop.ai/)
+![Ringless Voicemails](https://raw.githubusercontent.com/Voicemail-Drop-VoiceDrop/.github/refs/heads/main/ringlessimage.png)
 
 ## 15% OFF VoiceDrop Discount Code for Your First Month
 
